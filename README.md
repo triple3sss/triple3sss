@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @triple3sss
+- 👀 I’m interested in becoming a master in computer program
+- 🌱 I’m currently learning J2EE
+- 💞️ I’m looking to collaborate on with person wishes to learn from or willing add to my quest
+- 📫 You can reach via these e-mail addresses: samsonsylveseter316@gmail.com, samsonsylvester316@yahoo.com OR via +2349024427184,+2348118041202
